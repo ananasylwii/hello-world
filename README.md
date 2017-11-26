@@ -1,2 +1,3 @@
 # hello-world
-Tak po prostu
+Całe życie przede mną .
+Życzcie mi powodzenia.
